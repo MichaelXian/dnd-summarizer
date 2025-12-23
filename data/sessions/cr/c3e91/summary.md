@@ -1,0 +1,38 @@
+- A city-wide pulse from the Prime Pillar dispels all illusions as soldiers and Reiloran Mystics flood the streets
+- The voice Imogen and Fearne hear is Liliana, searching the city with her purple light
+- Fearne’s father, Sorrowlord Zathuda, hunts from above on his fey dragon Gloamglut
+- Gloamglut chases Fearne, Ashton, and FCG as Ashton smashes through buildings to clear escape routes
+- Zathuda confronts Fearne, calling her Fearne Zathuda and expressing twisted pride and hatred
+- Fearne polymorphs FCG into a slither and wildshapes as well, while Ashton burrows underground to escape
+- Imogen re-casts invisibility on the others, leaving herself visible, but they are trapped by stone walls
+- Liliana confronts Imogen, believing at first that she knew about the assassination attempt
+- Imogen convinces Liliana she didn’t know and tries to get her mother to flee with them
+- Liliana fears Ludinus will use Imogen as a vessel and says she’s too deep to escape
+- After a conflicted farewell, Liliana frees the group and flies away
+- Team Bomb reunites with Team Invisiltration and flees toward the tunnels beneath Kreviris
+- Team Invisiltration is confronted by five Reiloran Mystics, the Weave Mind, who see through invisibility
+- The Weave Mind recognize Chetney’s essence and sense the tether to him
+- They speak to Delilah through Laudna, offering power, while noticing two spirits in one body
+- The Minds address Imogen as someone who has “come home” before abruptly vanishing
+- The teams reunite again and flee through the tunnels toward Caeluma Kreviris
+- Imogen learns from Rashinna that the safe house is abandoned and they must find their promised allies
+- Laudna tracks Otohan, who is rapidly closing in
+- Otohan Thull appears and cuts off their escape in the tunnels
+- A brutal fight begins as Laudna summons her hound, Carpaccio Caviar
+- Otohan downs Chetney immediately, seemingly killing him
+- Fearne erupts in primal rage and transforms using the Spark of Rau’shan
+- FCG revivifies Chetney, bringing him back to life
+- Imogen tears Otohan’s backpack away, preventing her shadow echoes
+- Otohan unleashes Exaltant Fury, knocking out Imogen, Chetney, and FCG
+- The party struggles to recover as Otohan continues to overpower them
+- Imogen secretly plays possum while the others try to regroup
+- Laudna restores FCG, and FCG heals the group again at great personal cost
+- Imogen sends a desperate message to Liliana, asking for help
+- Orym repeatedly rises to fight, drawing strength from his loved ones, but is struck down again
+- Otohan defeats Ashton and turns on FCG
+- FCG chooses to trigger the arcane core within himself
+- He reflects on his bonds with Bells Hells and sacrifices himself to save them
+- The explosion kills both FCG and Otohan Thull
+- The party has no time to mourn and gathers what remains of FCG
+- They escape the tunnels to the surface of Kreviris, where Liliana reunites with them
+- Bells Hells escape the immediate danger, knowing the cost and stakes have never been higher

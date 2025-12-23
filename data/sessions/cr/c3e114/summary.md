@@ -1,0 +1,31 @@
+- Vox Machina push through the Malleus Fortress and reach the Malleus Key for a final assault
+- They unleash their full power as Ruidian soldiers continue pouring in through the Bloody Bridge
+- Sunder King Ozo Cruth arrives atop his massive vidulch, Scrag, accompanied by the bane worm Vorak
+- Grog engages Vorak while the rest of Vox Machina focus on destabilizing the tower
+- Percy identifies the likely location of the Luxon Beacon within the Key
+- Keyleth, in earth elemental form, casts earthquake to destabilize the tower
+- Lieve’tel calls on divine intervention, allowing the Matron to reveal the Beacon
+- Scanlan retrieves the Beacon and glimpses alternate lives as the Bloody Bridge finally shuts down
+- The storm fades, leylines relax, and Ruidus breaks free from its tether to Exandria
+- Scanlan dominates Scrag, bringing the vidulch under his control
+- Ozo Cruth relentlessly attacks Vex’ahlia, killing her in battle
+- As she dies, Vex thinks of her family and begs Percy to save Vax
+- Pike calls on the Everlight and brings Vex back to life through divine intervention
+- As the tower collapses, Keyleth shifts to air elemental form and rescues the orb holding Vax
+- The orb shatters and Vax’ildan is freed, recognizing Keyleth even in elemental form
+- Lieve’tel casts mass heal, restoring Vox Machina despite resistance from Reiloran forces
+- Grog duels and kills Sunder King Ozo Cruth
+- Vorak swallows Pike, who casts inflict wounds from inside the worm before being expelled
+- Scanlan counterspells the Weave Mind as they attempt to interfere
+- Vax joins the fight, cutting down Reiloran soldiers with his daggers
+- Vex kills Vorak with an arrow as a tree-like growth erupts from its head and lightning finishes it
+- Scanlan sends Scrag away into the Hellcatch Valley to live free
+- Vox Machina fully reunites with Vax as powerful reinforcements arrive around the fallen Key
+- It’s revealed Vax is still living on borrowed time and not truly restored
+- Vax reflects on the Matron’s role and his desire to stay with Keyleth
+- A planetar arrives, saying they must travel to Issylra to continue the fight
+- The Matron appears to Vax and offers him a choice
+- Vax chooses to stay, and the Matron grants him one single night in the mortal world
+- Vox Machina returns to Whitestone to rest and share one final night with Vax
+- They choose to pretend everything is fine, knowing time is fleeting
+- Keyleth holds Vax’s hand as the group reunites at home, together once more
