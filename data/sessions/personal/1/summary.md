@@ -1,0 +1,30 @@
+- The gang meets up with Lilith and her 5 companions. 
+- Mirth is bacc. Mkultra is still down with the sickness. 
+- Plan is Lilith distracts while the train slows at bend and the party boards the train. 
+- Jack has the device to be planted on the train. He sings “See you again” by Charlie Puth to Fred V in case birb doesn’t catch up with train. 
+- Party does board the train’s end with slight difficulty.  Just one hooded boi is in the caboose.Gang “convinces” (poorly) him we were security for the attac and proceeds towards the engine.Dude is called Morten  
+- Car 4 has a party of elites with elite gear preoccupied with battle outside. We move past them. 
+- Car 3 has a bunch of grunts/mooks/goons and crates. Shama cures John of poisoning.John gets moral support by Eddie Mamé, unlocks the door at the end of car 3. Shama says, “Use the Force, John” and guides him to jam the door after the party exits the car. 
+- We start to loot car 2. There’s wine. John opens a crate of mana crystals. We take 30 small and 12 medium ones, leaving the large crystals.  
+- Next crate has 2 warforged! Cue pokemon battle music. 
+- Jack rizzes blue warforged for a while. We destroy them but man was it harder than it should be. 
+- Ripley, son of Rodong, the gnome operating the train, agrees to let us into the engine room in return for mad lizussy. Turns out the device Lilith instructed us to plant turns the AEON express train into a bomb that will level Media.
+- We get Ripley to open the other crates. One contains a rod of resurrection, a legendary item that reappears throughout history, and another of potions. One is a healing potion which Shama uses to heal himself. 
+- Shama climbs the roof of the train to fetch a cloak, fulfilling his drip destiny by becoming Moses. 
+- Lilith mission accomplished. 
+- We jump off the train with Ripley. Shama gets bitten by a tick with a skull mark. Frederick the 5th returns. 
+- The gang+Ripley meets up with Lilith (minus her left hand) and gets rewarded with a 15-minute break followed by a 3-hour trek to Media. 
+- Big boom happens at Media. 
+- Lilith be decayin’. “Mr Jack, I don’t feel so good.” 
+- We are to meet with a certain HIM at Media. Turns out HIM is the aasimar Tijlat. Accompanying him at the Ishtriot camp is an elf named Ravena. 
+- The gang cannot scam their way to keep the staff. Ravena is a dank lord of the sith who might feel cute and end the material world like a material girl.  
+- Shama now has dark aura with the shadow Moses cloak. 
+- Potions looted: Fire resistance, superior healing, mind control (humanoid), heroism, cloud giant strength, poison, advantage, invisibility, cold resistance, acid resistance, mind control (beast). We choose to keep the superior healing and cloud giant strength potions. 
+- We only keep 1 small mana crystal + 150 gold for each person. Ishtriot be lowballing like Pawn Stars. 
+- Ripley gets lizard tail. 
+- Shama gets instantly attuned to an ornate skull-faced dagger (weapon of warning) from half a man. 
+- Shama actually escaped from elf epstein island where he was transformed from an elf to a half-orc. 
+- EVERYONE LEVELS UP. 
+- Lilith gives us green eggs and ham for breakfast. Non-Shama members get to pick a magical item (rare or lower quality). 
+- Now we go to war against the car industry by targeting the forges in Mercedes. 
+- Everyone gets 3 days of unpaid leave. 

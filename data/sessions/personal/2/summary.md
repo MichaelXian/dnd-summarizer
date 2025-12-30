@@ -1,0 +1,28 @@
+- We all forgot the last 3 weeks, even starlight, cuz we consented to memory modifications or smth
+- We don’t remember our mission/battle plan
+- We wake up in a hotel room for adventurers
+- We meet an Aarakocra that lets us know we checked in just last night, didnt say a word, and went upstairs like we were in a trance
+- The inn is named “The pink lion”
+- Our eagle, Frederick, hasn’t had their memory wiped, but we can’t speak with them
+- Someone at the emerald district might be able to cast speak with animals for us
+- We find a researcher who can cast speak with animals for us. They also have a green pig we want to try putting Tim on
+- We ask the researcher to ask our bird what happened, but since our bird told him we’re here to destroy the city, we get into combat with them, and the rest of the researchers in the room
+- We get absolutely destroyed by the casters at the research institute
+- Out of desperation, we put on Tim, who deals with the casters, and makes an offer to take control for one day a week in exchange
+- Tim uses Jack’s body to talk to an old friend of his, using Sylvan so that he can’t understand
+- As part of the deal, Jak gains 1 cast per day speak with animals and fly. This steals the power from Tim, who can no longer cast it,
+- We use the speak with animals to ask Fredrick what happened
+- We walked into a tent every day for 8 hours, and then come out and do regular daily activities
+- Fredrick thinks his goal with Jack is to take over the world together
+- There’s a giant bird called ironclaw knows who’s thinking of committing crimes, and who have a clear plan of what to do, and immediately descend and kill them.
+- However, he will not snatch people who have already finished their crimes, nor those who are indoors
+- We interrogate the surviving researcher, who tells us that the red mountain has a self-destruct button, and a red dragon is powering it all. If the dragon was let free, it could collapse the industry.
+- We grab the researcher’s spellbook, and use his library card to scribe some scrolls
+- We go to the coal district to try to get to the red mountain
+- We come across a thug, named Ticus, who we give 5 copper to get info on how to get to the red mountain
+- We try to incite him to revolution, he tells us about Finley, who’s a leader of the resistance
+- Firbolg slaves are being sent to the red mountain. Ticus wants us to free them before they get sent to the mines, to gain his trust, in order for us to meet Finley
+- We arrive at the firbolgs, guarded by one Aeon empire guard, and 11 residents of the coal district. We absolutely obliterate the empire guard, and persuade the residents to join our cause
+- We go to Finley’s basement to discuss battle plans
+- There’s a dwarven weapon Finley is working to get to kill Ironclaw. We convince him to do a combined attack where we free the dragon to attack ironclaw, as well as use the dwarven weapon
+- We will set out at dawn to get the dragon, then, do a joint attack with his forces to free the dragon
