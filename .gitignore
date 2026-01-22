@@ -1,3 +1,5 @@
+*.jsonl
+*.json
 transcript.txt
 **/*.mp3
 experiment
