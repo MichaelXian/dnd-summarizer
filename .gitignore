@@ -1,5 +1,8 @@
+transcript.txt
+**/*.mp3
 experiment
 .virtual_documents
+**/data.jsonl
 
 # Byte-compiled / optimized / DLL files
 __pycache__/
